@@ -3,8 +3,6 @@
 
 By [The Exposé](https://dailyexpose.uk/author/jonnywalkersb/ "View all posts by The Exposé") on [April 19, 2022](https://dailyexpose.uk/2022/04/19/covid-is-man-made-a-timeline-of-bio-terror/ "6:44 am") • ( [31 Comments](https://dailyexpose.uk/2022/04/19/covid-is-man-made-a-timeline-of-bio-terror/#comments) )
 
-![Print Friendly, PDF & Email](https://i0.wp.com/cdn.printfriendly.com/buttons/printfriendly-pdf-email-button-md.png?w=639&ssl=1)
-
 **The US government funded Peter Daszak’s ECO Health Alliance to the tune of $61,491,183 to make new coronaviruses that are infectious to humans. It also directly or indirectly funding the Wuhan Institute of Virology to the tune of $7.4 million dollars to make new coronaviruses that are infectious to humans. Meanwhile the National Institute of Allergy and Infectious Diseases funded Ralph Baric to the tune of $46,958,414 to make new coronaviruses that are infectious to humans.**
 
 **This totals more than $114 million in the period from 2000 to 2020 to make new coronaviruses which are infectious to humans.**
